@@ -1,1 +1,1 @@
-# AfridiTech.github.io
+# AfridiTechStar.github.io
